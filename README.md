@@ -26,3 +26,4 @@
 22. **Ehh- Gracias. Dee naada.** (By Leandro FEAT ELiab)
 23. **Bich - Es una Bich** [Para referirse a alguien que es una Pisofshit] (By Leandro)
 24. **Boee** [Denota impresion] (By Eliab)
+25. **Sampar - Samparle** [Algo a alguien] (By Leandro)
