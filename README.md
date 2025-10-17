@@ -31,4 +31,4 @@
 27. **Cuando papi llama, las perritas siempre acuden** [Para cuando tiran de la correa de alguien...] (By Eliab FEAT Leandro)
 28. **Boy** [Igualmente para referirse a un interno o en casos particulares, a algun amigo] (By Leandro)
 29. **Un...** [Invitar a realizar una actividad concreta de interés (Ej: Un bluds, un Mates, un Battlefield, un Gogogo)] (By Bluds-Internos)
-30. **"En plan, holy shit. Tipo... básicamente"** [Tipo, básicamente, es... en plan... básicamente 3 poderosas frases usadas para explicar en plan... tipo. Básicamente] (By Leandro)
+30. **"En plan, holy shit. Tipo... básicamente"** [Tipo, básicamente, es... en plan... básicamente 3 poderosas frases usadas para explicar en plan... tipo. Básicamente (Disclaimer: tambien se pueden usar por separado)] (By Leandro)
