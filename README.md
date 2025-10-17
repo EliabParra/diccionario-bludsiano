@@ -27,3 +27,8 @@
 23. **Bich - Es una Bich** [Para referirse a alguien que es una Pisofshit] (By Leandro)
 24. **Boee** [Denota impresión] (By Eliab)
 25. **Sampar - Samparle** [Algo a alguien] (By Leandro)
+26. **Man** [Usar para referirse a cualquier persona, con cierto tono humorístico] (By Pantaletax)
+27. **Cuando papi llama...** [Para cuando tiran de la correa de alguien...]
+28. **Boy** [Igualmente para referirse a cualquier persona] (By Leandro)
+29. **Un...** [Invitar a realizar una actividad concreta de interés (Ej: Un bluds, un Mates, un Battlefield, un Gogogo)]
+30. **"En plan, holy shit. Tipo... básicamente"** [Tipo, básicamente, es... en plan... básicamente 3 poderosas frases usadas para explicar en plan... tipo. Básicamente] (By Leandro) 
