@@ -15,7 +15,7 @@
 11. **Ay, yayai** [Usar en situaciones comprometedoras] (By Pantaletax)
 12. **Ay, tu marido. Miau, miau - Ay, mi gatito. Miau, miau.** (By Leandro)
 13. **Tu marido** [Usar para referirse a cualquier persona, cosa, objeto, poya] (By Bluds-Internos)
-14. **-Poner el cañón en el ano - El ano en el cañón-** [Usar cuando una persona se regala espontáneamente]
+14. **-Poner el cañón en el ano - El ano en el cañón-** [Usar cuando una persona se regala espontáneamente] (By Eliab FEAT Leandro)
 15. **JOu-dEir** [Variación del Joder español, con efecto Eliab] (By Eliab)
 16. **Vamos cerrando el ortito...** {OBLIGATORIO}: Hacer Mewing post frase. (By Leandro)
 17. **De-tóna y aban-dona** (By Leandro)
@@ -27,8 +27,8 @@
 23. **Bich - Es una Bich** [Para referirse a alguien que es una Pisofshit] (By Leandro)
 24. **Boee** [Denota impresión] (By Eliab)
 25. **Sampar - Samparle** [Algo a alguien] (By Leandro)
-26. **Man** [Usar para referirse a cualquier persona, con cierto tono humorístico] (By Pantaletax)
-27. **Cuando papi llama...** [Para cuando tiran de la correa de alguien...]
-28. **Boy** [Igualmente para referirse a cualquier persona] (By Leandro)
-29. **Un...** [Invitar a realizar una actividad concreta de interés (Ej: Un bluds, un Mates, un Battlefield, un Gogogo)]
-30. **"En plan, holy shit. Tipo... básicamente"** [Tipo, básicamente, es... en plan... básicamente 3 poderosas frases usadas para explicar en plan... tipo. Básicamente] (By Leandro) 
+26. **Man** [Usar para referirse a algun interno, con cierto tono humorístico] (By Pantaletax)
+27. **Cuando papi llama, las perritas siempre acuden** [Para cuando tiran de la correa de alguien...] (By Eliab FEAT Leandro)
+28. **Boy** [Igualmente para referirse a un interno o en casos particulares, a algun amigo] (By Leandro)
+29. **Un...** [Invitar a realizar una actividad concreta de interés (Ej: Un bluds, un Mates, un Battlefield, un Gogogo)] (By Bluds-Internos)
+30. **"En plan, holy shit. Tipo... básicamente"** [Tipo, básicamente, es... en plan... básicamente 3 poderosas frases usadas para explicar en plan... tipo. Básicamente] (By Leandro)
