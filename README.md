@@ -23,7 +23,7 @@
 19. **¿Un qué?, ¿un qué?!... Un [Grr - Gogogo - Ay, mi gatito, miau, miau]** (By Leandro)
 20. **Cóómo, Cóm...** [Existe el Cómo alargado, usado suavemente en situaciones de doble sentido el Cómo acortado, como complemento del alargado, y estos se suelen proceder con "Un qué..."] (By Leandro)
 21. **Poya - Una poya - Poyas** [El animal, claro, claro, ¿cómo no?] (By Leandro)
-22. **Ehh- Gracias. Dee naada.** (By Leandro FEAT ELiab)
+22. **Ehh- Gracias. Dee naada.** (By Leandro FEAT Eliab)
 23. **Bich - Es una Bich** [Para referirse a alguien que es una Pisofshit] (By Leandro)
 24. **Boee** [Denota impresión] (By Eliab)
 25. **Sampar - Samparle** [Algo a alguien] (By Leandro)
